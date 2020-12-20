@@ -9,3 +9,4 @@ Escaping into our own artificial Universe would imply an almost divine level of 
 
 I'm absolutely no scientist and I'm speculating about cosmogenesis just as
 a mental exercise in order to learn some cool physics and mathematics.
+
